@@ -17,9 +17,8 @@ We aim to be the go-to platform for discovering and collaborating with African f
 💡 Empowering Creatives: Skill development, fair compensation, and digital transformation
 
 ## Connect With Us
-📩 Email: suuaveftxsuuaveftx@gmail.com
-📱 Phone: +234 7033893100
-🔗 Socials: @SuuaveFTx
+  -  📩 Email: suuaveftxsuuaveftx@gmail.com
+  -  🔗 Socials: @SuuaveFTx
 
 Let’s redefine African fashion together! 🚀✨
 
